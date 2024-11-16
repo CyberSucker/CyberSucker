@@ -1,5 +1,4 @@
-
-<p align="center"> <img src=[https://raw.githubusercontent.com/Starb3rryJ3lly/for-pookie/main/draini%20pfp.png](https://64.media.tumblr.com/325179b6ccaaef1dc12cd5f28dd6c723/817ae0342db2eed5-a6/s640x960/4811c5f9e4f4b5b95b0dc6d55d36f29155dd881e.pnj) height="320px">
+<p align="center"> <img src=[https://64.media.tumblr.com/325179b6ccaaef1dc12cd5f28dd6c723/817ae0342db2eed5-a6/s640x960/4811c5f9e4f4b5b95b0dc6d55d36f29155dd881e.pnj] height="320px">
 <p align="center"> <br><br><b>General Info[Ponytown]</b>
 <p align="center"> <br><br><b>Where to find:</b> Beside or in Hoyo/Gacha Area <br><br><b>If Afk:</b> Playing a game or talking to friends<3
 <p align="center"> C+H[Ask] | DO NOT Copy/heavily inspo off my ponies!
