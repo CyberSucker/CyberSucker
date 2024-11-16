@@ -1,11 +1,11 @@
 
 <p align="center"> <img src=https://raw.githubusercontent.com/Starb3rryJ3lly/for-pookie/main/draini%20pfp.png height="320px">
 <p align="center"> <br><br><b>General Info[Ponytown]</b>
-<p align="center"> <br><br><b>Where to find:</b> Beside or in Hoyo/Gacha Area <br><br><b>If Afk:</b> Playing a game or talking to Jelly<3
+<p align="center"> <br><br><b>Where to find:</b> Beside or in Hoyo/Gacha Area <br><br><b>If Afk:</b> Playing a game or talking to friends<3
 <p align="center"> C+H[Ask] | DO NOT Copy/heavily inspo off my ponies!
 <p align="center"> <img src=https://64.media.tumblr.com/70cc4156b3e38edd69d7318ab4325a46/70ccf76a1ad5fb12-26/s540x810/eee68f47bba2ff325f5f85f7acd29d60fc5fb362.pnj height="20px">
 <p align="center"> <br><br><b>INFO!</b>
-<p align="center"> look at my <a href="https://draini.carrd.co">Carrd</a> for more info aswell for DNI list.
+<p align="center"> <3
 
 <p align="center"> <img src=https://64.media.tumblr.com/70cc4156b3e38edd69d7318ab4325a46/70ccf76a1ad5fb12-26/s540x810/eee68f47bba2ff325f5f85f7acd29d60fc5fb362.pnj height="20px">
 <p align="center"> <br><br><b>Interests</b>
